@@ -1,1 +1,2 @@
-asto  romoner hey bruda hre
+asto  romoner hey bruda hre gucci
+init
